@@ -1,4 +1,4 @@
-## Mdisk Uploader Bot 4GB 🔥
+## Mdisk Uploader Bot 🔥
 
 
 
